@@ -1,2 +1,3 @@
 hi my name is kau siapa 🗿
-industry armament 
+
+industry armament presents experiences and times when weapons and defenses were created
